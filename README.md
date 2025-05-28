@@ -1,22 +1,4 @@
-hi g*tzy :/ hi ch-rles:/
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-hi pawzer and felix!
+Heavy 007n7 x Chance comf , I don't care if my ships make you uncomfortable. Dni if you dont know what proshipping actually is, you're annoying.
 
 
 
