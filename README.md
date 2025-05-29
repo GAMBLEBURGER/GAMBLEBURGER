@@ -1,4 +1,4 @@
-Heavy 007n7 x Chance comf , I don't care if my ships make you uncomfortable. Dni if you dont know what proshipping actually is, you're annoying.
+Heavy 007n7 x Chance comf , I don't care if my ships make you uncomfortable. Dni if you dont know what [proshipping](https://learnaboutproshipping.carrd.co/) actually is, you're annoying.
 
 
 
